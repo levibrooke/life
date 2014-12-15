@@ -1,6 +1,5 @@
 Levi Brooke Porter: My Life
 ===============
-
 - 23/01/1987 Born in Joplin, Mo.
 - 1988 Moved to Jacksonville, Fla.
 - 08/2003 Moved to St. Eval, Cornwall, United Kingdom
