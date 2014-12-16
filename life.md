@@ -6,17 +6,28 @@ Levi B. Porter: My Life
 - 03/1996 Second sister was born
 - 08/2003 Moved to St. Eval, Cornwall, United Kingdom
 - 09/2003 Entered boarding school at RAF Daws Hill
-- 05/06/2005 Graduated from London Central HS in High Wycombe, UK
+- 06/2004 Visited La Maddalena, Italy
+- 01/2005 Attended THIMUN Conference at the Hague, Netherlands
+- 05/06/2005 Graduated from London Central HS
+- 08/2005-04/2006 Attended Univ. of Tampa in Tampa, FL
+- 07/2006 Moved back to Jacksonville, FL
 - 10/2006-12/2006 Coast Guard bootcamp in Cape May, NJ
 - 15/03/2007 Initiated into [Kappa Sigma Fraternity](http://kappasigma.org)
 - 08/2007-12/2007 Coast Guard "A" School in Petaluma, CA
-- 07/2009 Attended first Kappa Sigma Grand Conclave in San Antonio, TX
-- 05/2011 Selected into Kappa Sigma Fellows Program
+- 03/2009 Hiked ~50 miles of AT starting at Springer Mtn.
+- 07/2009 Attended 67th Grand Conclave in San Antonio, TX
+- 03/2010 Snowboarded at Wintergreen, Charlottesville, VA
+- 07/2010 Visited Washington, D.C. for DMLC
+- 03/2011 Snowboarded at Sugar Mountain, NC
+- 05/2011 Selected for Kappa Sigma Fellows Program
+- 05/2011 Visited San Francisco, CA for Lakin's USF graduation
+- 06/2011 Visited Seattle, WA for Mom's college graduation
 - 07/2011 Attended 68th Grand Conclave in Las Vegas, NV
 - 10/2011 Attended first SEC Meeting in Philadelphia, PA
 - 07/2013 Attended 69th Grand Conclave in Las Vegas, NV
 - 08/2013 Attended SEC Retreat in Vail, CO
 - 02/2014 Attended Florida Conclave in Ft. Myers, FL
 - 03/2014 Attended New Jersey Conclave in Hoboken, NJ
+- 05/2014 Visited Honolulu, HI for Login's HS graduation
 - 07/2014-09/2014 Lived in New Haven, CT
 - 03/10/2014 Left the Coast Guard
