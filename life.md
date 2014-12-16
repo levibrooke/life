@@ -1,10 +1,22 @@
-Levi Brooke Porter: My Life
+Levi B. Porter: My Life
 ===============
-- 23/01/1987 Born in Joplin, Mo.
-- 1988 Moved to Jacksonville, Fla.
+- 23/01/1987 Born in Joplin, MO
+- 1988 Moved to Jacksonville, FL
+- 11/1989 First sister was born
+- 03/1996 Second sister was born
 - 08/2003 Moved to St. Eval, Cornwall, United Kingdom
 - 09/2003 Entered boarding school at RAF Daws Hill
 - 05/06/2005 Graduated from London Central HS in High Wycombe, UK
-- 10/2006-12/2006 Coast Guard bootcamp in Cape May, N.J.
+- 10/2006-12/2006 Coast Guard bootcamp in Cape May, NJ
 - 15/03/2007 Initiated into [Kappa Sigma Fraternity](http://kappasigma.org)
-- 08/2007-12/2007 Coast Guard "A" School in Petaluma, Ca.
+- 08/2007-12/2007 Coast Guard "A" School in Petaluma, CA
+- 07/2009 Attended first Kappa Sigma Grand Conclave in San Antonio, TX
+- 05/2011 Selected into Kappa Sigma Fellows Program
+- 07/2011 Attended 68th Grand Conclave in Las Vegas, NV
+- 10/2011 Attended first SEC Meeting in Philadelphia, PA
+- 07/2013 Attended 69th Grand Conclave in Las Vegas, NV
+- 08/2013 Attended SEC Retreat in Vail, CO
+- 02/2014 Attended Florida Conclave in Ft. Myers, FL
+- 03/2014 Attended New Jersey Conclave in Hoboken, NJ
+- 07/2014-09/2014 Lived in New Haven, CT
+- 03/10/2014 Left the Coast Guard
