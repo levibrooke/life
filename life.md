@@ -4,6 +4,7 @@ Levi B. Porter: My Life
 - 1988 Moved to Jacksonville, FL
 - 11/1989 First sister was born
 - 03/1996 Second sister was born
+- 08/2001 Started HS at Paxon SAS
 - 08/2003 Moved to St. Eval, Cornwall, United Kingdom
 - 09/2003 Entered boarding school at RAF Daws Hill
 - 06/2004 Visited La Maddalena, Italy
@@ -18,12 +19,13 @@ Levi B. Porter: My Life
 - 07/2009 Attended 67th Grand Conclave in San Antonio, TX
 - 03/2010 Snowboarded at Wintergreen, Charlottesville, VA
 - 07/2010 Visited Washington, D.C. for DMLC
+- 07/2010-09/2010 Mobilized for Deepwater Horizon Oil Spill in New Orleans, LA
 - 03/2011 Snowboarded at Sugar Mountain, NC
 - 05/2011 Selected for Kappa Sigma Fellows Program
-- 05/2011 Visited San Francisco, CA for Lakin's USF graduation
 - 06/2011 Visited Seattle, WA for Mom's college graduation
 - 07/2011 Attended 68th Grand Conclave in Las Vegas, NV
 - 10/2011 Attended first SEC Meeting in Philadelphia, PA
+- 05/2012 Visited San Francisco, CA for Lakin's USF graduation
 - 07/2013 Attended 69th Grand Conclave in Las Vegas, NV
 - 08/2013 Attended SEC Retreat in Vail, CO
 - 02/2014 Attended Florida Conclave in Ft. Myers, FL
